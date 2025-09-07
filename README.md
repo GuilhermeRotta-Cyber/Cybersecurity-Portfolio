@@ -1,0 +1,1 @@
+Aspiring Cybersecurity Analyst building a foundational skill set in security principles. Currently enrolled in the Google Cybersecurity Professional Certificate to gain practical experience with industry-standard tools and procedures
